@@ -1,1 +1,1 @@
-# -AuraSolar---AI-Energy-Intelligence-OS
+# AuraSolar-AI-Energy-Intelligence-OS
